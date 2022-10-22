@@ -1,1 +1,1 @@
-Hi I am Tejus Gupta.
+Hi I am Tejus Gupta. I am pursuing B. Tech. CSE(IoT).
